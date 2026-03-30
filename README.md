@@ -1,2 +1,0 @@
-# zamonaviy.anime
-zamonaviy.anime
